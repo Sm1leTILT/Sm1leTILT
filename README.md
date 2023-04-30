@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sm1leTILT
+- 👀 I’m interested in: programming
+- 🌱 I’m currently learning: Programming
+- 💞️ I’m looking to collaborate on: I am not looking for cooperation
+- 📫 How to reach me: no way
